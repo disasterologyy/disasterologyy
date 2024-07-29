@@ -10,6 +10,8 @@ for ponytown ;
 
 please do not randomly come up and boop me ! i dont mind interactions but i may be super awkward at first bc i have social anxiety. i'll warm up eventually though ^_^
 
+![01C0ADFD-D6B5-4972-BBEB-503E20B44591](https://github.com/user-attachments/assets/4f362c6d-438d-4ded-a8be-af8fbc29cb9c)
+
 abt me ;
 
 i study both space and the ocean !
@@ -17,9 +19,14 @@ i study both space and the ocean !
 
 i listen to laufey, lamp, beabadoobee, conan gray, chappell roan, deftones, ICP, ptv, etc. if you listen to any of those INT omg.. 
 
+![01C0ADFD-D6B5-4972-BBEB-503E20B44591](https://github.com/user-attachments/assets/6955291c-3857-4c32-a26b-106a8c01ed86)
+
+
 dni list ;
 
 proshippers, melanie martinez defenders, WEIRD hazbin and helluva fans.. basic dni criteria
+
+![01C0ADFD-D6B5-4972-BBEB-503E20B44591](https://github.com/user-attachments/assets/36d958bf-93b0-4059-806d-5b04a9b97593)
 
 fandoms im in ;
 
