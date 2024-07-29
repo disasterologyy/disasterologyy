@@ -12,7 +12,7 @@ please do not randomly come up and boop me ! i dont mind interactions but i may 
 𓆝
 ![01C0ADFD-D6B5-4972-BBEB-503E20B44591](https://github.com/user-attachments/assets/4f362c6d-438d-4ded-a8be-af8fbc29cb9c)
 
-彡. abt me ;‿‿‿
+彡. abt me ;‿‿‿𓂅 ﹆⋆
 
 i study both space and the ocean !
 #1 sebastian solace, eyefestation and 8:11 fan
@@ -21,19 +21,19 @@ i study both space and the ocean !
 
 i listen to laufey, lamp, beabadoobee, conan gray, chappell roan, deftones, ICP, ptv, etc. if you listen to any of those INT omg.. 
 
-14 yro artist 
+14 yro artist 𓂅✦ᯅ
 
 𓆝
 ![01C0ADFD-D6B5-4972-BBEB-503E20B44591](https://github.com/user-attachments/assets/6955291c-3857-4c32-a26b-106a8c01ed86)
 
 
-彡. dni list ;‿‿‿
+彡. dni list ;‿‿‿𓂅 ﹆⋆
 
 proshippers, melanie martinez defenders, WEIRD hazbin and helluva fans.. basic dni criteria
 𓆝
 ![01C0ADFD-D6B5-4972-BBEB-503E20B44591](https://github.com/user-attachments/assets/36d958bf-93b0-4059-806d-5b04a9b97593)
 
-彡. fandoms im in ;‿‿‿
+彡. fandoms im in ;‿‿‿𓂅 ﹆⋆
 
 pressure, 8:11, md, sp, paswg, omori, ENA, spooky month, solarballs, eddsworld, dead plate, the outsiders, lps popular, law of talos, etc.
 𓆝
