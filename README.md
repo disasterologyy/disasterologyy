@@ -30,6 +30,7 @@ proshippers, melanie martinez defenders, WEIRD hazbin and helluva fans.. basic d
 
 fandoms im in ;
 
-pressure, 8:11, md, sp, paswg, omori, ENA, solarballs, etc. im lazy to list
+pressure, 8:11, md, sp, paswg, omori, ENA, spooky month, solarballs, etc. im lazy to list
 
-![A1CB4356-264E-427E-9041-4C2B83251760](https://github.com/user-attachments/assets/b62772f7-c2ea-4abc-85cd-8b426ab9b04e)
+![9123DF42-A1A6-41B0-AC6D-9585062BD0FD](https://github.com/user-attachments/assets/162dc0c8-9d40-4199-879b-6b19f1f4d831)
+
