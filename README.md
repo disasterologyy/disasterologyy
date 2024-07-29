@@ -30,7 +30,8 @@ proshippers, melanie martinez defenders, WEIRD hazbin and helluva fans.. basic d
 
 fandoms im in ;
 
-pressure, 8:11, md, sp, paswg, omori, ENA, spooky month, solarballs, etc. im lazy to list
+pressure, 8:11, md, sp, paswg, omori, ENA, spooky month, solarballs, eddsworld, dead plate, the outsiders, lps popular, law of talos, etc.
 
-![9123DF42-A1A6-41B0-AC6D-9585062BD0FD](https://github.com/user-attachments/assets/162dc0c8-9d40-4199-879b-6b19f1f4d831)
+![4C066067-72DF-4496-A1D7-AD2C37FC2BF1](https://github.com/user-attachments/assets/e7d8a11c-8a52-4a0d-bd37-f64c970255f4)
 
+┆彡‿‿‿‿‿‿‿‿‿‿‿‿𓆝 𓆟 
