@@ -6,34 +6,34 @@ any prns - genderfluid and aroace
 
 ![IMG_1708](https://github.com/user-attachments/assets/34d82d3e-47c7-4463-824f-ad26f39f373e)
 
-for ponytown ;
+for ponytown ;‿‿‿
 
 please do not randomly come up and boop me ! i dont mind interactions but i may be super awkward at first bc i have social anxiety. i'll warm up eventually though ^_^
-
+𓆝
 ![01C0ADFD-D6B5-4972-BBEB-503E20B44591](https://github.com/user-attachments/assets/4f362c6d-438d-4ded-a8be-af8fbc29cb9c)
 
-abt me ;
+彡. abt me ;‿‿‿
 
 i study both space and the ocean !
 #1 sebastian solace, eyefestation and 8:11 fan
-
+𓆝
 i listen to laufey, lamp, beabadoobee, conan gray, chappell roan, deftones, ICP, ptv, etc. if you listen to any of those INT omg.. 
 
 14 yro artist
-
+𓆝
 ![01C0ADFD-D6B5-4972-BBEB-503E20B44591](https://github.com/user-attachments/assets/6955291c-3857-4c32-a26b-106a8c01ed86)
 
 
-dni list ;
+彡. dni list ;‿‿‿
 
 proshippers, melanie martinez defenders, WEIRD hazbin and helluva fans.. basic dni criteria
-
+𓆝
 ![01C0ADFD-D6B5-4972-BBEB-503E20B44591](https://github.com/user-attachments/assets/36d958bf-93b0-4059-806d-5b04a9b97593)
 
-fandoms im in ;
+彡. fandoms im in ;‿‿‿
 
 pressure, 8:11, md, sp, paswg, omori, ENA, spooky month, solarballs, eddsworld, dead plate, the outsiders, lps popular, law of talos, etc.
-
+𓆝
 ![4C066067-72DF-4496-A1D7-AD2C37FC2BF1](https://github.com/user-attachments/assets/e7d8a11c-8a52-4a0d-bd37-f64c970255f4)
 
 ┆彡‿‿‿‿‿‿‿‿‿‿‿‿𓆝 𓆟 
