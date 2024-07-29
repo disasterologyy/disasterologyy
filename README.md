@@ -15,7 +15,7 @@ please do not randomly come up and boop me ! i dont mind interactions but i may 
 abt me ;
 
 i study both space and the ocean !
-#1 sebastian solace and 8:11 fan
+#1 sebastian solace, eyefestation and 8:11 fan
 
 i listen to laufey, lamp, beabadoobee, conan gray, chappell roan, deftones, ICP, ptv, etc. if you listen to any of those INT omg.. 
 
