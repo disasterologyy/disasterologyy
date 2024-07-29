@@ -15,5 +15,14 @@ abt me ;
 i study both space and the ocean !
 #1 sebastian solace and 8:11 fan
 
-i listen to laufey, lamp, beabadoobee, conan gray, chappell roan, deftones, ICP, etc. if you listen to any of those INT omg.. 
+i listen to laufey, lamp, beabadoobee, conan gray, chappell roan, deftones, ICP, ptv, etc. if you listen to any of those INT omg.. 
 
+dni list ;
+
+proshippers, melanie martinez defenders, WEIRD hazbin and helluva fans.. basic dni criteria
+
+fandoms im in ;
+
+pressure, 8:11, md, sp, paswg, omori, ENA, solarballs, etc. im lazy to list
+
+![A1CB4356-264E-427E-9041-4C2B83251760](https://github.com/user-attachments/assets/b62772f7-c2ea-4abc-85cd-8b426ab9b04e)
