@@ -23,7 +23,7 @@ i listen to laufey, lamp, beabadoobee, conan gray, chappell roan, alex g, defton
 
 14 yro artist 𓂅✦ᯅ
 
-𓆝.            ノ.       ,//
+𓆝
 ![01C0ADFD-D6B5-4972-BBEB-503E20B44591](https://github.com/user-attachments/assets/6955291c-3857-4c32-a26b-106a8c01ed86)
 
 
