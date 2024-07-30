@@ -19,7 +19,7 @@ i study both space and the ocean !
 
 𓆝‿‿‿‿‿‿‿‿‿‿‿‿ ,, ^
 
-i listen to laufey, lamp, beabadoobee, conan gray, chappell roan, alex g, deftones, ICP, ptv, etc. if you listen to any of those INT omg.. 
+i listen to laufey, lamp, beabadoobee, conan gray, chappell roan, alex g, deftones, ICP, ptv, weird al, etc. if you listen to any of those INT omg.. 
 
 14 yro artist 𓂅✦ᯅ
 
