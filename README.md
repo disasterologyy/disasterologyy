@@ -40,3 +40,5 @@ pressure, 8:11, md, sp, paswg, omori, ENA, spooky month, solarballs, eddsworld, 
 ![4C066067-72DF-4496-A1D7-AD2C37FC2BF1](https://github.com/user-attachments/assets/e7d8a11c-8a52-4a0d-bd37-f64c970255f4)
 
 ┆彡‿‿‿‿‿‿‿‿‿‿‿‿𓆝 𓆟 
+
+![IMG_1733](https://github.com/user-attachments/assets/6e87f637-b6ca-4df4-926a-c8e0b7fe3849)
