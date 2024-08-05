@@ -19,7 +19,7 @@ i study both space and the ocean !
 
 𓆝‿‿‿‿‿‿‿‿‿‿‿‿ ,, ^.      ノ
 
-i listen to laufey, lamp, beabadoobee, conan gray, cas, alex g, deftones, ICP, ptv, weird al, tv girl, etc. if you listen to any of those INT omg.. 
+i listen to laufey, lamp, beabadoobee, conan gray, cas, alex g, deftones, ICP, ptv, weird al, tv girl, nu-metal, etc. if you listen to any of those INT omg.. 
 
 14 yro artist 𓂅✦ᯅ
 
