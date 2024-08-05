@@ -15,7 +15,7 @@ please do not randomly come up and boop me ! i dont mind interactions but i may 
 彡. abt me ;‿‿‿𓂅 ﹆⋆
 
 i study both space and the ocean !
-#1 sebastian solace, eyefestation, deadpool and 8:11 fan
+#1 sebastian solace, eyefestation, bill cipher and 8:11 fan
 
 𓆝‿‿‿‿‿‿‿‿‿‿‿‿ ,, ^.      ノ
 
