@@ -8,7 +8,7 @@ any prns - genderfluid and aroace
 
 for ponytown ;‿‿‿
 
-please do not randomly come up and boop me ! i dont mind interactions but i may be super awkward at first bc i have social anxiety. i'll warm up eventually though ^_^ c + h is allowed
+please do not randomly come up and boop me ! i dont mind interactions but i may be super awkward at first bc i have social anxiety. i'll warm up eventually though ^_^ c + h is allowed , im usually seen at spawn, campsite, cave, or rblx area
 𓆝
 ![01C0ADFD-D6B5-4972-BBEB-503E20B44591](https://github.com/user-attachments/assets/4f362c6d-438d-4ded-a8be-af8fbc29cb9c)
 
@@ -41,4 +41,3 @@ pressure, 8:11, md, sp, paswg, omori, ENA, spooky month, solarballs, eddsworld, 
 
 ┆彡‿‿‿‿‿‿‿‿‿‿‿‿𓆝 𓆟 
 
-![IMG_1733](https://github.com/user-attachments/assets/6e87f637-b6ca-4df4-926a-c8e0b7fe3849)
